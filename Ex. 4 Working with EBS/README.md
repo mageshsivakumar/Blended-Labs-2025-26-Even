@@ -2,8 +2,8 @@
 
 ## Author
 
-* **Name**: AKSHAYA V A
-* **Register Number**: 212224040019
+* **Name**: MAGESH S
+* **Register Number**: 212224040180
 
 ---
 
